@@ -3,7 +3,7 @@
 
 Looking to extract Instagram followers quickly and efficiently? **DataScrapify’s Instagram Follower Scraper** is the perfect tool for marketers, influencers, and data analysts who need accurate follower data – fast.
 
-👉 [Download the Instagram Follower Scraper](https://www.datascrapify.com/product/Instagram-Follower-Scraper) today and start extracting followers in minutes.
+👉 [Try the Instagram Follower Scraper](https://www.datascrapify.com/product/Instagram-Follower-Scraper) today and start extracting followers in minutes.
 
 
 
